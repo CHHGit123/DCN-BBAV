@@ -1,1 +1,1 @@
-The code is conming soon
+The code is coming soon
